@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Analytics
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on you
-- 📫 How to reach me my goals
+- 📫 How to reach me 6385230980
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
